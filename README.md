@@ -1,7 +1,7 @@
 ## Hi there, I'm Arturo Serrano 👋
 
 
-- Pronouns: She/Her
+- Pronouns: He/Him
 - How to reach me:
   - Linkedin:
     [Linkedin](https://www.linkedin.com/in/arturo-serrano-mart%C3%ADnez-9b9592148/)
